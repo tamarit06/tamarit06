@@ -47,8 +47,8 @@
 ---
 
 # 📫 Contact Me
-- **Email:** tamarittejas@example.com  
+- **Email:** tamarittejas@gmail.com  
 - **Telegram:** [@lianet_tt](https://t.me/lianet_tt)  
-- **WhatsApp:** [+5359150133](https://wa.me/5359150133)  
+- **WhatsApp:** [+5359150133](https://wa.me/59150133)  
 
 ✨ Thanks for visiting my profile! ✨
